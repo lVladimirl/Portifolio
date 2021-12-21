@@ -1,5 +1,0 @@
-# Portifolio
- site de portifolio
-
-
-eu estou ficando cansado demais... não sinto o toque carinhoso de um ser humano a anos, minha familia me ama mas eu não consigo sentir isso, não me lembro da ultima vez que minha mãe e abraçou, não lembro da ultima vez que meu pai me elogiou, tudo que eu faço seja bom ou ruim minha mãe menospreza dizendo que eu não sei o que é sofrer, que a vida vai me ensinar, não me lembro de um unico dia que meus pais e defenderam, independente de estar certo ou errado...as lagrimas ate escorrem do meu rosto mas eu não consigo deixar elas fluirem, eu não entendo por que... é como se eu não me deixasse chorar, mesmo que eu esteja escrevendo isso justamente para deixar essa dor sair, não sei se apenas me acalmo ou se eu ja não posso expressar esses sentimentos... não sei como eu vou passar por isso, ou como eu cheguei ate aqui, mas eu tenho que dar um jeito por mim mesmo. Se um dia no futuro nos vermos isso novamente, saiba que esta doendo e eu espero que você não sinta mais essa dor.
